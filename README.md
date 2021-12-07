@@ -1,2 +1,1 @@
 # CryptoCrazy
-# CryptoCrazy
